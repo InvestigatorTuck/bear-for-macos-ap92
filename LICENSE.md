@@ -1,4 +1,4 @@
-
+Bear for macOS best Extension: OCR scanning & quick search offers the most advanced Bear for macOS extension, with OCR scanning and quick search. Ideal for professionals.
 
 
 
